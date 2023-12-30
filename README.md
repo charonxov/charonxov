@@ -6,7 +6,7 @@
 
 - My discord - kjstvx
 - My YouTube - @kjstvx
-- My website - [\*Soon\*](https://-,.com) 
+- JOIN MY Universety - [\*CLICK\*](https://discord.gg/pJWVCu4Uqg)
 - I speak English / French / Russian / Czech / Ukrainian / Swedish
 
 # 👨‍💻 My favourite programming languages
