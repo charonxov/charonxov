@@ -2,7 +2,7 @@
   <img alt="Visitors" src="https://visitor-badge.laobi.icu/badge?page_id=kjstvx"/>
 </p>
     
-# 👋 Hello, that's github Stanislav's profile 
+# 👋 Hello, that's Stanislav's github profile 
 
 - My discord - kjstvx
 - My YouTube - @kjstvx
